@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kresscosmetics
+- We are Haircare Beauty brand.
+- We deal in Hair btox treatment and Nanoplastia Treatment shampoo conditioner
+- we supply to Salons allover india
+- you can order on Amazon, flipkart and our website www.kresscosmetic.com
+- Thanks for your support.
